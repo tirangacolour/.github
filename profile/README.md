@@ -51,6 +51,27 @@ Tiranga Game is a digital platform offering engaging games like colour predictio
 
 ---
 
+## Popular Tiranga Game Variations
+
+- Tiranga Game 𝙰𝙿𝙺 𝙳𝚘𝚠𝚗𝚕𝚘𝚊𝚍  
+- Tiranga Game 𝙲𝚘𝚕𝚘𝚛 𝙿𝚛𝚎𝚍𝚒𝚌𝚝𝚒𝚘𝚗 𝙶𝚊𝚖𝚎  
+- Tiranga Game 𝙰𝚙𝚙  
+- Tiranga Game 𝙾𝚗𝚕𝚒𝚗𝚎  
+- Tiranga Game 𝙻𝚘𝚐𝚒𝚗  
+- Tiranga Game 𝚂𝚝𝚛𝚊𝚝𝚎𝚐𝚒𝚎𝚜  
+- Tiranga Game 𝙾𝚏𝚏𝚒𝚌𝚒𝚊𝚕 𝚆𝚎𝚋𝚜𝚒𝚝𝚎  
+- Tiranga Game 𝚁𝚎𝚐𝚒𝚜𝚝𝚛𝚊𝚝𝚒𝚘𝚗  
+- Tiranga Game 𝚃𝚒𝚙𝚜  
+- Tiranga Game 𝙻𝚊𝚝𝚎𝚜𝚝 𝚅𝚎𝚛𝚜𝚒𝚘𝚗  
+- Tiranga Game 𝙷𝚊𝚌𝚔 𝙰𝙿𝙺  
+- Tiranga Game 𝙼𝚘𝚍 𝚊𝚙𝚔 𝚑𝚊𝚌𝚔  
+- Tiranga Game 𝚑𝚊𝚌𝚔 𝚖𝚘𝚍 𝚊𝚙𝚔  
+- Tiranga Game 𝚌𝚘𝚕𝚘𝚞𝚛 𝚙𝚛𝚎𝚍𝚒𝚌𝚝𝚒𝚘𝚗 𝚑𝚊𝚌𝚔  
+- Tiranga Game 𝚌𝚘𝚕𝚘𝚞𝚛 𝚑𝚊𝚌𝚔 𝙰𝙿𝙺  
+- Tiranga Game 𝚌𝚘𝚕𝚘𝚞𝚛 𝚙𝚛𝚎𝚍𝚒𝚌𝚝𝚒𝚘𝚗 𝚖𝚘𝚍 𝙰𝙿𝙺  
+
+---
+
 #### **How to Play Tiranga Game?**
 1. **Download and Install:**  
    Click on the download link and install the APK on your Android device.  
